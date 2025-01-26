@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Walter.
-- 👀 I’m interested in learning everything i can.
+- 👀 I’m interested in learning everything i can learn.
 - 🌱 I’m currently learning some painting and programming.
 - 💞️ I’m looking to collaborate on anything that's fun.
 - 📫 How to reach me victor_s_26 ig.
